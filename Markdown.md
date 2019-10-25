@@ -1,1 +1,0 @@
-An initial website from rida rambli
