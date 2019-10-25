@@ -1,1 +1,0 @@
-This is an initial website for a Borneo based food business, Rambli's kitchen.
